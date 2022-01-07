@@ -11,7 +11,6 @@
 
 
 ## Connect with me: <br /> <br/> [<img src="https://img.icons8.com/color/48/000000/linkedin.png"/>](https://www.linkedin.com/in/maneravi/)
-[<img src="https://img.icons8.com/material-sharp/48/000000/linkedin--v1.png"/>](https://www.linkedin.com/in/maneravi/).
 
 
 
